@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **shiyun.rabbit@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/shiyunli/](https://www.linkedin.com/in/shiyunli/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/shiyunli/](https://www.linkedin.com/in/-shiyun/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
